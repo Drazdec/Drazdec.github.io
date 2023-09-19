@@ -1,3 +1,3 @@
 
 
-# Contact: info@ediplimited.com
+# Contact: :)
